@@ -35,7 +35,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A SERMON preached at Paules Crosse the 〈◊〉 Februarie. Anno Dom. 1583.By I. Hudson, Maister of Arte, 
+
 #####Body#####
 Heb. cap. 10. ver. 19.SEeing therefore brethren that by the bloud of Iesus wee maie bee boulde to en
 **Types of content**
